@@ -2,7 +2,7 @@
 - 👀 I’m interested in acting and photography
 - 🌱 I’m currently learning Japanese, Python & C# 
 - 💞️ I’m looking to collaborate on podcasts, films and shows
-- 📫 How to reach me: zuras@null18.com
+- 📫 How to reach me: xforgex@yahoo.com
 
 <!---
 xForgex/xForgex is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
